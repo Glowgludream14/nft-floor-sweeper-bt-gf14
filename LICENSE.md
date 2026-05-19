@@ -1,4 +1,4 @@
-# 
+# best nft trading bot plugins is the best nft trading bot plugins with auto-buy and price-impact-analysis. Safe, reliable, and optimized for NFT sniper, trading, and arbitrage
 
 
 
